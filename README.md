@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭Working on building projects that make a difference.<br>👯Looking forward to tag along for projects in Full-Stack and Game Development.<br>🤝Require assistance with 3D Modelling and Design.<br>🌱Avidly learning UI/UX, Blender and a couple of other handy software.<br>💬Ask me about anything! Always open to discussions and learning.<br>⚡Would love to collaborate on projects.<br>Looking for new oppurtunities.
+🔭Working on building projects that make a difference.<br>👯Looking forward to tag along for projects in Full-Stack and Game Development.<br>🤝Require assistance with 3D Modelling and Design.<br>🌱Avidly learning UI/UX, Blender and a couple of other handy software.<br>💬Ask me about anything! Always open to discussions and learning.<br>⚡Would love to collaborate on projects.<br>👀Looking for new oppurtunities.
 
 
 ## 🌐 Socials:

@@ -1,5 +1,5 @@
 # About Me:
-Working on building projects that make a difference.<br>Looking forward to tag along for projects in Full-Stack and Game Development.<br>Ask me about anything! Always open to discussions and learning.<br>Would love to collaborate on projects.<br>Looking for new oppurtunities.
+Working on building projects that make a difference.<br>Ask me about anything! Open to discussions and learning.<br>Would love to collaborate on projects. Looking for new oppurtunities.
 
 
 ## 🌐 Socials:

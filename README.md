@@ -1,5 +1,5 @@
 # About Me:
-Working on building projects that make a difference.<br>Ask me about anything! Open to discussions and learning.<br>Would love to collaborate on projects. Looking for new oppurtunities.
+Working on building projects that make a difference.<br>Ask me about anything! Open to discussions and learning.<br>Would love to collaborate on projects. Looking for new opportunities.
 
 
 ## 🌐 Socials:
